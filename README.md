@@ -1,9 +1,11 @@
-### Hi there 👋
+### ˚ · . *c l o u d* 
 
-**Snow**  è ✨ _speciale_ ✨ perchè: 
+☕ ˚ · . *Manager Hikari*
 
-- 🔭 Creo Server ...
-- 🌱 Creo Bot / Package ...
-- 👯 Non faccio nulla tutto il giorno ...
-- 🤔 È un umano ...
-- 💬 So usare Python, Lua, JavaScript e sto imparando Golang ...
+🍨 ˚ · . *Discord Bot Developer* 
+
+🔮 ˚ · . *Programmer*
+
+🧁 ˚ · . *I know how to use Svelte , JS , Python , Lua & learning Go
+
+*
