@@ -8,4 +8,3 @@
 
 🧁 ˚ · . *I know how to use Svelte , JS , Python , Lua & learning Go
 
-*
