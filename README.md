@@ -1,6 +1,6 @@
-### ˚ · . *c l o u d* 
+### ˚ · . *Skaya* 
 
-☕ ˚ · . *Manager Hikari*
+☕ ˚ · . *https://dsc.gg/hvncafe*
 
 🍨 ˚ · . *Discord Bot Developer* 
 
